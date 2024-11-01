@@ -1,1 +1,0 @@
-# Documentaci-n-t-cnica-DevOps
